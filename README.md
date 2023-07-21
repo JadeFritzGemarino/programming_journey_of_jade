@@ -2,4 +2,4 @@
 
 wannabe programmer guy
 
-this project is just for my satisfactio
+this project is just for my satisfaction
